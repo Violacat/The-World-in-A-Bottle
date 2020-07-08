@@ -1,5 +1,5 @@
 # Hi!
-We are a kids band. We are really new to being a band so *please* don't be mean!!
+We are a new band, so we haven't gotten that much music out yet, but you can check us out on bancamp<br/> or soundtrap if you're interested in waiting for our first realease! We're **REALLY** new to this whole thing, <br> so *please* be nice.
 ## Social Media
 You can check us out on the following social media sites to stay up to date on all of our singles and albums:
 * [Soundtrap](https://www.soundtrap.com/theworldinabottleband) 
