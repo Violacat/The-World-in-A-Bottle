@@ -6,5 +6,7 @@ You can check us out on the following social media sites to stay up to date on a
 * [Bandcamp](https://theworldinabottle.bandcamp.com/) 
 * [Youtube Music](https://music.youtube.com) <br/> <br/>
 -------------------------------
-[*Read our official lyrics*](https://drive.google.com/file/d/13xCh2kIA9zMYLyRjAQyxnqqa9iEJjCfu/view?usp=sharing)
 
+ **HEY! Some of the lyrics contained in the PDF linked below are for unreleased or never-to-be-released songs! (Just an FYI)**
+
+[*Read our official lyrics*](https://drive.google.com/file/d/13xCh2kIA9zMYLyRjAQyxnqqa9iEJjCfu/view?usp=sharing)</br>
