@@ -9,4 +9,5 @@ You can check us out on the following social media sites to stay up to date on a
 
  **HEY! Some of the lyrics contained in the PDF linked below are for unreleased or never-to-be-released songs! (Just an FYI)**
 
-[*Read our official lyrics*](https://drive.google.com/file/d/13xCh2kIA9zMYLyRjAQyxnqqa9iEJjCfu/view?usp=sharing)</br>
+[Read our official lyrics in this PDF!](https://drive.google.com/file/d/13xCh2kIA9zMYLyRjAQyxnqqa9iEJjCfu/view?usp=sharing)</br>
+[Learn more about us](https://github.com/Violacat/The-World-in-A-Bottle/blob/master/Other%20info.md)
