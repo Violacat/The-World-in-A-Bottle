@@ -5,4 +5,6 @@ You can check us out on the following social media sites to stay up to date on a
 * [Soundtrap](https://www.soundtrap.com/theworldinabottleband) 
 * [Bandcamp](https://theworldinabottle.bandcamp.com/) 
 * [Youtube Music](https://music.youtube.com) <br/> <br/>
+-------------------------------
 [*Read our official lyrics*](https://drive.google.com/file/d/13xCh2kIA9zMYLyRjAQyxnqqa9iEJjCfu/view?usp=sharing)
+
